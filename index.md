@@ -13,3 +13,4 @@ On the air, he enjoys DXing, contesting, building antennas, and participating on
 * Profound writer
 * Dedicated ham radio operator
 
+> It is very gratifying to be recognized as having made a contribution to this amazing hobby and service - it's been quite a long journey since finding the May 1966 QST in the library! I owe a lot to the friends and readers that have encouraged me to continue to write and provided me with ideas, corrections, and guidance. Ham radio continues to open doors for me and I am honored to enjoy the friendship of my many ham radio friends in every corner of the globe, whether it has corners or not :-)
